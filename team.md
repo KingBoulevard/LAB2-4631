@@ -1,1 +1,1 @@
-Team lead: [Moses Mwenya]
+Team lead: Moses Mwenya & Paul Mwenya
